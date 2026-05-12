@@ -1,4 +1,4 @@
-# 
+# Get the ultimate geckoterminal sniper bot with smart Automation for geckoterminal sniper bot | priority-gas-auctions & take-profit. Featuring priority-gas-auctions and
 
 
 
